@@ -2,7 +2,7 @@
 
 ### Team:
 
-Adelina Dunina (login: Adelina2302), 
+Adelina Dunina (login: Adelina2302), Arya Patil (login )
 
 ### Introduction
 
